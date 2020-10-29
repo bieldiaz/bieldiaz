@@ -5,6 +5,7 @@ I'm currently actively looking for work since I have finished my studies in DAM 
 You can follow me in the next sites👍🏻
 
 -💼My personal [Linkedin](https://www.linkedin.com/in/biel-d%C3%ADaz-gadea/)
+->👨🏽‍💻My website: www.bieldiaz.com
 
 
 
